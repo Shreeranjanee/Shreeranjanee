@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shreeranjanee.M
+- 👋 Hi, I’m @Shreeranjanee
 - 👀 I’m interested in Singing,dancing,Watching/Creating videos on youtube
 - 🌱 I currently finished my Bachelors in computer applications
 - 💞️ I’m looking to collaborate on all coding platforms
